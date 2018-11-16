@@ -1,0 +1,1 @@
+# AG_extspot-v2_real_images_for_test
